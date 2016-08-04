@@ -1,1 +1,1 @@
-# i am YJ Chin 
+# I am YJ Chin 
